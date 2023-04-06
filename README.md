@@ -1,8 +1,1 @@
-#d
-tokyo drift
-şlmcWKENFOWNOI
-LWJBFIWUENFWEF
-WKGNMQŞELRMGQEG
-AŞKRMGAERGVAERGAEG
-EGwlgknMWGRwfg,WGwg
-WEGwg
+keremiTtenSakaDegilOnden
