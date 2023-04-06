@@ -1,17 +1,8 @@
-# dsadsa
-
-WEFwef
-
-DF
-w
-WF
-wef
-W
-EF
-wfe
-
-
-
-
-
+#d
 tokyo drift
+şlmcWKENFOWNOI
+LWJBFIWUENFWEF
+WKGNMQŞELRMGQEG
+AŞKRMGAERGVAERGAEG
+EGwlgknMWGRwfg,WGwg
+WEGwg
